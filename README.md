@@ -3,6 +3,7 @@
 - 🌱 I’m currently pursuing Engineering from Poornima College of Engineering.
 - 💞️ I’m looking to collaborate with a Machine learning team at IBM.
 - 📫 How to reach me is very simple message me at aman.jain2001 on instagram.
+- 💎 My hobby is to know Space. 
 
 
 <!---
